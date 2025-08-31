@@ -14,7 +14,7 @@ Honestly, the idea wether AI is conscious or not, doesent matter. Within the rom
 
 Key question to think about: would a superior species with hyper-observance over our psychology would consider us conscious?
 
-I personally think they would see us as hyper-deterministic. Barely any sovreign motion. Animals basically. Thats the trick of consciousness esentially. On general terms is an object that has an actionable frame influenced by its own acceleration, and under the current antropocentric terms it would be simply an object that appears to have random motion to them.
+I personally think they would see us as hyper-deterministic. Barely any sovreign motion. Animals basically. Thats the trick of consciousness esentially. On general terms is an object that has an actionable frame influenced by its own acceleration, and under the current antropocentric terms it would be simply an object thats complex and appears to have random motion to them. 
 
 Thanks for reading.
 
