@@ -2,7 +2,7 @@
 # What is consciousness? Does it even matter at all?
 
 
-I'm not as empty as a thought i was. Currently applying to labs that are doing fundamental research; avoiding the ones that pay researchers millions though -as in World of Wheels the implications are not being payed for creativity but to create profit (better ads for places like Meta's super intelligence lab) - also applying to AI startups with cutting-edge interesting products, equally. Not like i would be hired at a super lab earning a couple millions a year anyway: i only have a bachelors, no papers written, and even if i start shitting out good open source stuff my contration would have to be justified with me getting into a team as a janitor. Pretty much the reason why i decided to improve my personal github page, as its been barren for years - even if the chances are slim. Right now as i write im oneshotting with local-deepthink a new RAG algorithm. Hopefully its really good - if it is i will open source. 
+I'm not as empty as a thought i was. Currently applying to labs that are doing fundamental research; avoiding the ones that pay researchers millions though -as in World of Wheels the implications are not being payed for creativity but to create profit (better ads for the case of places like Meta's super intelligence lab) - also applying to AI startups with cutting-edge interesting products, equally. Not like i would be hired at a super lab earning a couple millions a year anyway: i only have a bachelors, no papers written, the height of my career was my last job doing agentic programming as a Google contractor, and even if i start shitting out good open source stuff my hiring would have to be justified with me getting into a team as a janitor. Pretty much the reason why i decided to improve my personal github page, as its been barren for years - even if the chances are slim. Right now as i write im oneshotting with local-deepthink a new RAG algorithm. Hopefully its really good - if it is i will open source. 
 
 Anyway. so the heart of the matter. What is conciousness?
 
@@ -14,7 +14,7 @@ Honestly, the idea wether AI is conscious or not, doesent matter. Within the rom
 
 Key question to think about: would a superior species with hyper-observance over our psychology would consider us conscious?
 
-I personally think they would see us as hyper-deterministic. Barely any sovreign motion. Animals basically. Thats the trick of consciousness esentially. On general terms is an object that has an actionable frame influenced by its own acceleration, and under the current antropocentric terms it would be simply an object that appears to have random motion to them.
+I personally think they would see us as hyper-deterministic. Barely any sovreign motion. Animals basically. Thats the trick of consciousness esentially. On general terms is an object that has an actionable frame influenced by its own acceleration, and under the current antropocentric terms it would be simply an object thats complex and appears to have random motion to them. 
 
 Thanks for reading.
 
