@@ -20,7 +20,9 @@ From the lens of revelations 12, the psychosis thats causing people to act errat
 
 Well, youll be surprised to understand that the original Satan, not Lucifer, is a chaos being, that was called "Leviathan" and it lived in the waters of chaos at the foundation of the universe. Basically the leviathan is the modern day equivalent of C'thulu: the lovecraftian horror of chaos and madness.
 
-So what im saying? Be cautious, minimize your online opinions, think intensely like a philosopher about what you are going to say before you say it, and youll be on plutos good side. The civil unrest in America is getting worse and it will reach criticality in 23 september with a big planetary opposition. Avoid being placed into a murder list by some random idiot.
+So what im saying? Be cautious, minimize your online opinions, think intensely like a philosopher about what you are going to say before you say it, and youll be on plutos good side. The civil unrest in America is getting worse and it will reach criticality in 23 september with a big planetary opposition: a polarization between extremes. Avoid being placed into a murder list by some random idiot, or be part of the event declared in verse 15 of revelations 12 - what that hypotethical flood would like just comes down to analyze pisces. Is mutable water, and it links together the patterns that water follows. It creates a mirror for imagination, so it also is the sign that has domain over projection. Heres a nice video that could help you understand what the pattern of the flood could mean.
+
+https://www.youtube.com/watch?v=Ixc9i1G7eew
 
 Anyway. Hope this was not too crazy: you dont have to believe it, im just advising to remember to "look up" into the heavens when everything else fails. 
 

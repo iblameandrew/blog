@@ -1,4 +1,4 @@
 
 # Dissecting Dead: The Ultimate Price to Pay
 
-https://www.youtube.com/watch?v=qDRUzbAa6lI
+https://youtu.be/qDRUzbAa6lI?si=X9Mqt61nWqe9JkPa&t=135
