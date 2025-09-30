@@ -1,0 +1,10 @@
+
+# About the author
+
+Andrés quest is set on unveiling the identity behind veils; and to restore a sense of motion and meaning into things that no longer hold the possibility of life - after difficult life events in which desperation was a major theme of his life, Andrés decided to bet it all in a final conversation with his opposer, only to find himself projected into a reflection: the world is whatever you want it to be, provided you are willing to sacrifice enough for the thing you wish to obtain. After contending with his own identity for a long time, Andrés defines himself as someone willing to see the context beyond appereances, to bring about the realization of the vision of a memory that has yet not being lived as it pulses like a beacon at the edge of what defines a man: what gives him meaning, purpose, and a shape. After seven years studying many analytical psychology frameworks, Andrés believes that personality theory is a good foundational start to _know who you are_, but at the same time; sees that such a definition can crook an individuals realization into becoming something greater than themselves: that is the capacity to express a life thats lived with dignity, and its complete. Andrés lives for the rush of adrenaline that is to give a rousing speech; to inspire the heart of fellow people: for a man must be many things, and so does a woman - as they are to live many lives within one lifetime. Oftentimes Andrés has wondered: how can i convince a man to be born again? With time, the question become a mirror of his own condition, as his health deteriorated, only to be healed by a change of heart. Metaonia, as they say. To be born again, is to live: to nourish defeat at the lowest point is to die.
+
+Andrés is here to build bridges between conflicting perspectives, tilt battlegrounds with new ideas, and to turn walls into open doors - a great enjoyment of his, is to see how many beliefs converge into one ever lasting pattern - the truth that is to live, is to know that things only meaningfully exist as they offer something to learn from.
+
+
+
+
